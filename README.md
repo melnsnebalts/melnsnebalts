@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @melnsnebalts
-- 👀 I’m interested in videgames, coding, videography and sports.
+- 👀 I’m interested in videogames, coding, videography and sports.
 - 🌱 I’m currently learning how to code.
 - 📫 How to reach me :
 - via Instagram @melnsnebalts
